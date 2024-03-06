@@ -39,6 +39,9 @@
    ╰┈┈┈┈┈┈┈┈➤ 𝚙𝚛𝚘𝚜𝚑𝚒𝚙𝚙𝚎𝚛𝚜
 
    ╰┈┈┈┈┈┈┈┈➤ 𝚣𝚒𝚘𝚗𝚒𝚜𝚝
+
+    some extra infos! ♡.° ꒰ kinda useless unless you actually want to int w/ me.⠀꒱⠀❀
+ 
  ![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/85ad2adc-ac05-42c3-8299-3738d6d2d99e) ![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/34ca6570-a5ff-430f-901c-eb5912e575c4)
 
 
