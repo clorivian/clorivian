@@ -1,4 +1,5 @@
-![image](https://github.com/stellarmelody/stellarmelody/assets/123318172/871c613d-9669-4536-9e23-1fe58ca28921)
+![image](https://github.com/clorivian/clorivian/assets/123318172/a49cec2b-a5b2-4470-bbed-64f1b323312c)
+
 
 
 
@@ -11,7 +12,8 @@
   
    ╰┈┈┈┈┈┈┈┈➤ ২ 🫐 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
    
-   ![image](https://github.com/stellarmelody/stellarmelody-/assets/123318172/b5aee753-5205-4003-a3c7-0bd425e656dc)
+![image](https://github.com/clorivian/clorivian/assets/123318172/d4757924-147a-4984-8d35-b86ae321a3d8)
+
 
      ⌕ 🌌 bfyi! 🦴 ⌟ ꩟
 
