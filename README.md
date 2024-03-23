@@ -4,7 +4,7 @@
 
 
 
-     ° kariﾉkaeri 彡 ¬ 🪽
+     ° 🍃 kariﾉkaeri 彡 ¬ 🪽
 
    ╰┈┈┈┈┈┈┈┈➤ ҂  𝚜𝚑𝚎ﾉ𝚝𝚑𝚎𝚢 🐇 ｡𓄹 
 
@@ -12,7 +12,8 @@
   
    ╰┈┈┈┈┈┈┈┈➤ ২ 🕊️ 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
    
-![image](https://github.com/clorivian/clorivian/assets/123318172/b0478e5e-06cb-4a9f-b27a-b72d763d7ca9)
+![image](https://github.com/clorivian/clorivian/assets/123318172/ba412fe0-b3e6-4bab-a782-518f7a013de9)
+
 
 
 
