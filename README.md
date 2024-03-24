@@ -1,19 +1,13 @@
-![image](https://github.com/clorivian/clorivian/assets/123318172/302d1f6a-6c16-4542-9c7c-731148099690)
 
-![image](https://github.com/clorivian/clorivian/assets/123318172/a49cec2b-a5b2-4470-bbed-64f1b323312c)
+![image](https://github.com/clorivian/clorivian/assets/123318172/79c730ac-f8b5-4863-a73a-a84a36ba1da3)
 
-![image](https://github.com/clorivian/clorivian/assets/123318172/47889a37-2e59-4cca-8b53-1639d0485660)
+                                ° 🍃 kariﾉkaeri 彡 ¬ 🪽
 
+                      ╰┈┈┈┈┈┈┈┈➤ ҂  𝚜𝚑𝚎ﾉ𝚝𝚑𝚎𝚢 🐇 ｡𓄹 
 
-
-
-     ° 🍃 kariﾉkaeri 彡 ¬ 🪽
-
-   ╰┈┈┈┈┈┈┈┈➤ ҂  𝚜𝚑𝚎ﾉ𝚝𝚑𝚎𝚢 🐇 ｡𓄹 
-
-    ʚ ꒦ malayﾉeng 𓂃 ⑅ ꒱ 🦴 
+                                ʚ ꒦ malayﾉeng 𓂃 ⑅ ꒱ 🦴 
   
-   ╰┈┈┈┈┈┈┈┈➤ ২ 🕊️ 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
+                      ╰┈┈┈┈┈┈┈┈➤ ২ 🕊️ 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
    
 ![image](https://github.com/clorivian/clorivian/assets/123318172/ba412fe0-b3e6-4bab-a782-518f7a013de9)
 
