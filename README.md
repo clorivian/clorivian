@@ -1,13 +1,5 @@
+![image](https://github.com/clorivian/clorivian/assets/123318172/0a99f918-f74c-4f4c-acad-a31d97ab5e84)
 
-![image](https://github.com/clorivian/clorivian/assets/123318172/79c730ac-f8b5-4863-a73a-a84a36ba1da3)
-
-                                ° 🍃 kariﾉkaeri 彡 ¬ 🪽
-
-                      ╰┈┈┈┈┈┈┈┈➤ ҂  𝚜𝚑𝚎ﾉ𝚝𝚑𝚎𝚢 🐇 ｡𓄹 
-
-                                ʚ ꒦ malayﾉeng 𓂃 ⑅ ꒱ 🦴 
-  
-                      ╰┈┈┈┈┈┈┈┈➤ ২ 🕊️ 𝚊𝚜𝚒𝚊𝚗 - ⌇ 
    
 ![image](https://github.com/clorivian/clorivian/assets/123318172/ba412fe0-b3e6-4bab-a782-518f7a013de9)
 
